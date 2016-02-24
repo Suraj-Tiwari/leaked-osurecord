@@ -11,4 +11,7 @@ After more than a year, I went broke. And my mom stopped making me cookies. I lo
 My anger to DarkImmortal. I put all the blame on him. I blame him for slow internet, I blame him for Global Warming and Kim Jong-un's haircut.  
 He destroyed my life. I hope you understand my situation.    
 Im trying to restrain myself. I wanted to be a changed man. But DarkImmortal is in my way.  
-So please DarkImmortal. Fix the server.
+So please DarkImmortal. Fix the server.  
+  
+  
+  Credits: www.cyberteamrox.org - Phr34ky
