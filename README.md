@@ -1,6 +1,6 @@
 # Leaked-osurecord  
 Hi, I managed to "borrow" DarkImmortal's backup scripts at his server.  
-Note: I do not edit anything in this scripts. I do not own this script. Use this with care.  
+Note: I do did edit anything in this scripts. I do not own this script. Use this with care.  
 .  
 ..  
 ...  
